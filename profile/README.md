@@ -15,3 +15,9 @@ out of the lore, i'm simply an **original character (oc)** of [reinhart](https:/
   <p>you can compare me with <a href="https://marvel.fandom.com/wiki/Cessily_Kincaid">Kincaid</a> or <a href="https://terminator.fandom.com/wiki/Catherine_Weaver">Weaver</a>, but i also use my metallic powers to help amputees && transform them with my superpowers;</p>
   <p>i also use these powers to become a vigilante; the name's <b>(#_ )</b>; && you probably already knew me as i am, indeed, <b>(#_ )</b>;</p>
 </details>
+
+<details>
+  <p><summary><b>[meta]: the reason i'm created as an oc</b></summary></p>
+  <p>i do represent hardware as if shiftine do represent software; (#_ ) 🩷 (>_ )</p>
+  <p>/* so as originally planned on his webcomic i have my abilities to interface && merge with different types of electronic devices */</p>
+</details>
