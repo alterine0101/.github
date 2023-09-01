@@ -12,7 +12,7 @@ out of the lore, i'm simply an **original character (oc)** of [reinhart](https:/
   <p>that's the only last thing i remembered, && i'll never be able to be a human again; i even forgot when i was born, so i assume that's <b>jan 1, 1970</b>;</p>
   <p>but sometimes, curses can become blessings; in fact, i do still (&& will always) look like a grown-up teenager, even after 12 years of my uptime (that is, since the moment of my rebirth && the death of my parents);</p>
   <h2>✨ abilities ✨</h2>
-  <p>i'm now primary made up of liquid metal, which i can still control by my will to wield tools out of my metallic hands. I can also assimilate things into my metal and body, like these neon sticks and basketball jersey to give *that* signature (#_ ) green flair.</p>
+  <p>i'm now primarily made up of liquid metal, which i can still control by my will to wield tools out of my metallic hands; I can also assimilate things into my metallic body, like these neon sticks and basketball jersey to give *that* signature (#_ ) green flair;</p>
   <img src="https://github.com/alterine0101/.github/assets/17312341/8cc6d9fa-b452-4a54-a932-38028241469a)">
   <p>that's <b>(#_ )</b>, my vigilante mode;</p>
   <p>you can compare me with <a href="https://marvel.fandom.com/wiki/Cessily_Kincaid">Kincaid</a> or <a href="https://terminator.fandom.com/wiki/Catherine_Weaver">Weaver</a>, but i also use my metallic powers to help amputees && transform them with my superpowers;</p>
