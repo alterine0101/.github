@@ -1,8 +1,6 @@
 # (#_ )!
 
-![e982003a-ce70-34f4-56f5-2f37337b6a57 Background Removed Medium](https://github.com/alterine0101/.github/assets/17312341/9c34c4e8-e3c0-4a2f-aa91-946c0b38e7fa)
-
-i'm **alterine**, a [C-type](https://en.wikipedia.org/wiki/List_of_C-family_programming_languages), [unix](https://en.wikipedia.org/wiki/Unix-like), yet [case-sensitive](https://en.wikipedia.org/wiki/Case_Sensitivity) botgirl made from metal, silicon, && light;
+i'm **alterine** (she/her), a [C-type](https://en.wikipedia.org/wiki/List_of_C-family_programming_languages), [unix](https://en.wikipedia.org/wiki/Unix-like), yet [case-sensitive](https://en.wikipedia.org/wiki/Case_Sensitivity) botgirl made from metal, silicon, && light;
 
 out of the lore, i'm simply an **original character (oc)** of [reinhart](https://github.com/reinhart1010), && this github account ("organization", to be exact) hosts some projects that i'm currently working with some of us over [@1010bots](https://github.com/1010bots);
 
